@@ -1,0 +1,7 @@
+Muhammad Syiblunnur adalah seorang pemuda asal Sampit yang sangat tertarik dalam pengembangan teknologi digital, karena melihat dari era yang sangat cepat berubah dan segala kebutuhan layanan manusia yang semakin komplit.
+
+Kemajuan zaman membuat manusia semakin mempersempit ruang gerak, namun ingin tetap terlayani dengan cepat dan baik. Hal ini membuat ia berfikir agar bisa memfasilitasi kebutuhan manusia dengan layanan teknologi. Ia memulai dari membuat aplikasi Lapakita berbasis android pada tahun 2018, yang diperuntukkan agar market lokal dapat bertransaksi jual beli secara cepat tanpa harus keluar rumah. Aplikasi tersebut juga memfasilitasi layanan antar jemput dari transaksi jual beli.
+
+Pada tahun 2019, ia memutuskan untuk membuat perusahaan berbadan hukum agar dapat menyediakan permintaan pengembangan kebutuhan digital bagi user.
+
+Keinginan saat ini adalah bagaimana ia bersama tim dapat menyediakan layanan teknologi digital bagi mitra-mitra kami agar dapat berkonstribusi dalam menyediakan layanan yang efektif dan efesien, serta berkonstribusi untuk pembangunan di Indonesia, khususnya Kalimantan Tengah. Ia, bersama dengan tim,` bercita-cita sebagai pemuda-pemuda daerah untuk dapat tampil secara nasional dalam pengembangan teknologi digital.
